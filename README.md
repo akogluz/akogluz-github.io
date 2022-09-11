@@ -1,2 +1,0 @@
-# akogluz-github.io
-something
